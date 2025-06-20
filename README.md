@@ -28,7 +28,7 @@ I'm a results-driven **Project Manager** with a keen focus on process optimizati
 ## ✨ Let's Connect
 
 - 💼 Linkedin: [LinkedIn](https://www.linkedin.com/in/marylouisebennett)
-- 📫 Email: marylouise.bennett@example.com
+- 📫 Email: mary@dantelabs.us
 
 ---
 
