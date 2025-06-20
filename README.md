@@ -1,7 +1,6 @@
 # 👋 Hello, I'm Mary Louise Bennett
 
-🎯 **Project Manager @ [Dante Labs](https://www.dantelabs.com)**  
-📍  Based in [United Kingdom]  
+🎯 **Project Manager @ [Dante Labs](https://www.dantelabs.com)**    
 💼 Passionate about innovation in genomics, cross-functional collaboration, and delivering high-impact projects.  
 🧬 Bridging science, strategy, and execution.
 
